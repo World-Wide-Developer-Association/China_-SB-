@@ -7,6 +7,6 @@
 
 注：因事件来源网络，无法一一核实，也许存在偏差，读者自行判断。
 
-* [儿慈会负责人恩威并施 病患儿母亲只能就范](https://www.youtube.com/watch?v=xhqdOxOIv6s&t=22s) -- 评: 男人欲望是天性，利用金钱只要不是强迫，虽说有违道德，但也算公平。坏就坏在因私废公！如果用的是自己的钱，倒也算在救济。
-* [装腔作势小流氓 想来老爸是大佬](https://www.youtube.com/watch?v=Qy4rQpV7frc&t=1055s) -- 评: 管中窥豹[理由](https://www.youtube.com/watch?v=Qy4rQpV7frc&t=9s)
+* [儿慈会负责人恩威并施 病患儿母亲只能就范](https://www.youtube.com/watch?v=xhqdOxOIv6s&t=22s) -- 男人欲望是天性，利用金钱只要不是强迫，虽说有违道德，但也算公平。但是既然私事，就不能动用公众的钱，会受不起。
+* [装腔作势小流氓 想来老爸是大佬](https://www.youtube.com/watch?v=Qy4rQpV7frc&t=1055s) -- 少年无知，所以“子不教 父之过” [...](https://www.youtube.com/watch?v=Qy4rQpV7frc&t=9s)
 
