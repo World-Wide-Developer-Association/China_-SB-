@@ -9,4 +9,4 @@
 
 * [儿慈会负责人恩威并施 病患儿母亲只能就范](https://www.youtube.com/watch?v=xhqdOxOIv6s&t=22s) -- 男人欲望是天性，利用金钱只要不是强迫，虽说有违道德，但也算公平。但是既然私事，就不能动用公众的钱，会受不起。
 * [装腔作势小流氓 想来老爸是大佬](https://www.youtube.com/watch?v=Qy4rQpV7frc&t=1055s) -- 少年无知，所以“子不教 父之过” [...](https://www.youtube.com/watch?v=Qy4rQpV7frc&t=9s)
-
+* [善有善报 恶有恶报 天道自在 时候未到](https://www.youtube.com/watch?v=2q7AGsCVHOk) -- 同上.
